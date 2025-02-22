@@ -19,6 +19,7 @@ I'm actively looking for opportunities to **grow professionally**, **acquire new
 - 📫 How to reach me:
 - mail: basterrasebastian@gmail.com
 - phone: +54 11 5038-1638
+- linkedin: https://www.linkedin.com/in/sebastián-nahuel-basterra/
 
 
 <!---
